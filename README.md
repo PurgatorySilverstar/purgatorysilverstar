@@ -7,8 +7,7 @@ im typically in a Stanley Parable related cosplay on there at the time of writin
 > i AM UK based!! so apologies if i do lowkey disappear mid conversation, im either asleep or at college :-) 
 
 
-## ***
-Fandoms!***
+## ***Fandoms!***
 
 -*The Stanley Parable*
 
