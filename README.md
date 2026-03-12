@@ -1,7 +1,7 @@
 hello! im clay,
 i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area.
 
-im typically in a Stanley Parable related cosplay on there at this current time, feel free to come say hi! i dont bite i swear
+im typically in a Stanley Parable related cosplay on there at the time of writing, feel free to come say hi! i dont bite i swear im friendly (albiet dry at convo lol)
 
 ## ***Fandoms!***
 -*The Stanley Parable*
