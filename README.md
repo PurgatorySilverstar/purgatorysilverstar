@@ -3,3 +3,7 @@ i made this acc specifically for PonyTown so bare that in mind! youll usually fi
 
 ## ***Fandoms!***
 -*The Stanley Parable*
+-*Poppy Playgime*
+-*Scrutinzed/WTTG*
+-*Good Omens*
+-*FNaF*
