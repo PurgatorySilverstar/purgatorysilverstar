@@ -22,3 +22,6 @@ im typically in a Stanley Parable related cosplay on there at the time of writin
 -*Do rollercoasters count?)*
 
 # RELEASE THE BLINKIES
+
+![GIF image](https://github.com/user-attachments/assets/930c8167-cf9f-4280-ba00-bc8d2f3314d1)
+
