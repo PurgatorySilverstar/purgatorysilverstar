@@ -45,7 +45,7 @@ im typically in a Stanley Parable related cosplay at the time of writing, feel f
 ![GIF image](https://github.com/user-attachments/assets/930c8167-cf9f-4280-ba00-bc8d2f3314d1)
 ![GIF image](https://github.com/user-attachments/assets/a7820233-37e0-4a56-b15a-85b0d7945204)
 ![GIF image](https://github.com/user-attachments/assets/416fe011-3e6a-4d62-b14b-0d8f80020977)
-![GIF image](https://github.com/user-attachments/assets/a06748cf -dd68-49c6-adf6-06732d8b70be)
+![GIF image](https://github.com/user-attachments/assets/a06748cf-dd68-49c6-adf6-06732d8b70be)
 <img width="99" height="56" alt="PNG image" src="https://github.com/user-attachments/assets/aa94eaf0-4ef5-43fa-a928-9727b1468620" />
 ![JPEG image](https://github.com/user-attachments/assets/cddc183f-d03d-43d4-acc1-4fe75ba9c9ae)
 ![GIF image](https://github.com/user-attachments/assets/6524fe24-272e-4960-8786-f957a47a850f)
