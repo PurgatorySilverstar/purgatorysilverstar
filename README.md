@@ -2,37 +2,17 @@
 
 
 
-hello! im clay,i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area.
+hello! im clay,i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area. Do feel free to come say hi! i dont bite i swear im friendly
 
-im typically in a TSP, SWTD or OC cosplay at the time of writing, feel free to come say hi! i dont bite i swear im friendly (albiet im extremely dry at convo lol). if i dont respond i HIGHLY recommend you leave a whisper, ill respond to you eventually !!
-
-> [!IMPORTANT]
-> i AM UK based!! so apologies if i do lowkey disappear mid conversation, im either asleep or at college :-)
+if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to you eventually!!
 
 
-![GIF image](https://github.com/user-attachments/assets/10a0c866-5b73-4560-a7db-1ada65001a7c)
+![GIF image](https://github.com/user-attachments/assets/5a81fe41-fc58-418b-a0f4-48dccef05e52)
 
 
 
-## ***Fandoms!***
+# RELEASE THE BLINKIES ![GIF image](https://github.com/user-attachments/assets/10a0c866-5b73-4560-a7db-1ada65001a7c)
 
--*The Stanley Parable*
-
--*Poppy Playtime*
-
--*Scrutinzed/WTTG*
-
--*Good Omens*
-
--*FNaF*
-
--*Do rollercoasters count?)*
-
--*Marvel*
-
--*Still Wakes The Deep*
-
-# RELEASE THE BLINKIES
 
 ![GIFimage](https://github.com/user-attachments/assets/9b8d6559-345a-4be8-b76d-21b4642d6e90)
 
