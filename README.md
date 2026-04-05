@@ -8,6 +8,7 @@ if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to yo
 
 
 ![GIF image](https://github.com/user-attachments/assets/5a81fe41-fc58-418b-a0f4-48dccef05e52)
+![_com apple Pasteboard mCsYxb](https://github.com/user-attachments/assets/d6ef0fc7-bbee-4bbd-b2f8-f05cacca0e15)
 
 
 
