@@ -36,6 +36,7 @@ if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to yo
 ![GIF image](https://github.com/user-attachments/assets/bf574f0f-b0ae-4773-a8b4-c6b645342506)
 ![GIF image](https://github.com/user-attachments/assets/2c71705b-cf51-4cfb-83ac-8551646791ba)
 ![GIF image](https://github.com/user-attachments/assets/865ceb98-6e09-4c96-9ab4-cac73bcde724)
+![GIF image](https://github.com/user-attachments/assets/d394a367-2c4b-4d5d-87b2-46e9ea33b33c)
 
 
 
@@ -59,8 +60,6 @@ if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to yo
 ![GIF image](https://github.com/user-attachments/assets/d8160fca-b3c9-4531-98b8-cf892949c4fc)
 <img width="99" height="55" alt="PNG image" src="https://github.com/user-attachments/assets/b4755a01-efd0-4191-8816-20bdc4f8e117" />
 ![image](https://github.com/user-attachments/assets/7bdc1ca6-7950-4f72-9219-540c50b3e635)
+![GIF image](https://github.com/user-attachments/assets/7204eb66-e006-47a0-afe8-b900e27e6738)
 
-
-
-![GIF image](https://github.com/user-attachments/assets/e4ad263f-512e-4ce3-91e4-155f4b527470)
 
