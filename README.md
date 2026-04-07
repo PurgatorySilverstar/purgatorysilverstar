@@ -1,26 +1,32 @@
-![GIF image](https://github.com/user-attachments/assets/d3aaca53-655f-4a12-ae62-4bbe4ba246a4) ![GIF image](https://github.com/user-attachments/assets/a9fe1c09-ebb0-40d6-8b85-0f2f516cfce4) <img width="88" height="31" alt="PNG image" src="https://github.com/user-attachments/assets/d3d1e686-9f99-47c8-958d-e4738eedf352" />
+![GIF image](https://github.com/user-attachments/assets/d3aaca53-655f-4a12-ae62-4bbe4ba246a4) <img width="88" height="31" alt="PNG image" src="https://github.com/user-attachments/assets/d3d1e686-9f99-47c8-958d-e4738eedf352" />
 
 ![GIF image](https://github.com/user-attachments/assets/f95618da-40df-41f2-9891-28a6376cbb83)
 
 
+-hello! im clay,i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area.
 
-hello! im clay,i made this acc specifically for PonyTown so bare that in mind! youll usually find me sitting around the spawn area. Do feel free to come say hi! i dont bite i swear im friendly
+-Do feel free to come say hi!! interaction is highly encouraged, i dont bite i swear im friendly
 
-if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to you eventually!!
+-if i dont respond i HIGHLY recommend you leave a whisper, i *will* respond to you eventually!!
 
 
 ![GIF image](https://github.com/user-attachments/assets/5a81fe41-fc58-418b-a0f4-48dccef05e52)
 ![_com apple Pasteboard mCsYxb](https://github.com/user-attachments/assets/d6ef0fc7-bbee-4bbd-b2f8-f05cacca0e15)
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312myr7ob6ggi6ztkn5jamuvir6i&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312myr7ob6ggi6ztkn5jamuvir6i&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&mode=dark&bar_color=a0000b&bar_color_cover=false">
+  </a>
+</p>
+
+                                       ☄︎₊˚⊹☆
+                                    
+
 (!!THE REST OF THIS IS MY BLINKIE DUMP!!)
 
-# RELEASE THE BLINKIES ![GIF image](https://github.com/user-attachments/assets/10a0c866-5b73-4560-a7db-1ada65001a7c)
+# RELEASE THE BLINKIES
 
 
-![GIFimage](https://github.com/user-attachments/assets/9b8d6559-345a-4be8-b76d-21b4642d6e90)
-
-
-![GIF image](https://github.com/user-attachments/assets/01f6f60c-1bb2-4d64-833d-001f655d5e5f)
 ![GIF image](https://github.com/user-attachments/assets/7ee0a96e-0827-4e7f-9750-ee6d913793c5)
 ![GIF image](https://github.com/user-attachments/assets/fb493501-3074-4b5c-8f7b-79b287f77693)
 ![GIF image](https://github.com/user-attachments/assets/0883448e-7920-4d51-90a1-e84536f5fb08)
