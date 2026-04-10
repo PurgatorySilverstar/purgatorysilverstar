@@ -14,13 +14,11 @@
 ![_com apple Pasteboard mCsYxb](https://github.com/user-attachments/assets/d6ef0fc7-bbee-4bbd-b2f8-f05cacca0e15)
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312myr7ob6ggi6ztkn5jamuvir6i&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312myr7ob6ggi6ztkn5jamuvir6i&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&mode=dark&bar_color=a0000b&bar_color_cover=false">
+ ☄︎₊˚⊹☆
   </a>
 </p>
 
-                                       ☄︎₊˚⊹☆
-                                    
+
 
 (!!THE REST OF THIS IS MY BLINKIE DUMP!!)
 
